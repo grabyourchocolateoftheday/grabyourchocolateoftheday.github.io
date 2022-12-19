@@ -3,4 +3,4 @@
 
 I actually do NOT know how to code but here is me trying :/
 
-(https://github.com/grabyourchocolateoftheday/grabyourchocolateoftheday.github.io/issues/1#issue-1502356934)
+![](kiss.jpg)
