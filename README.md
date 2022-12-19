@@ -3,10 +3,4 @@
 
 I actually do NOT know how to code but here is me trying :/
 
-Inline-style: 
-![alt text](https://github.com/9cyy/grabyourchocolateoftheday/kiss.jpg)
-
-Reference-style: 
-![alt text][logo]
-
-[logo]: https://github.com/adam-p/markdown-here/raw/master/src/common/images/kiss.jpg "Logo Title Text 2"
+![alt text](https://github.com/[9cyy]/[grabyourchocolateoftheday.github.io]/blob/[branch]/image.jpg?raw=true)
