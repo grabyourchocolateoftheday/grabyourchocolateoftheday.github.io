@@ -3,4 +3,4 @@
 
 I actually do NOT know how to code but here is me trying :/
 
-![alt text](https://github.com/[9cyy]/[grabyourchocolateoftheday.github.io]/blob/[branch]/image.jpg?raw=true)
+![alt text](https://github.com/[9cyy]/[grabyourchocolateoftheday.github.io]/blob/[branch]/kiss.jpg?raw=true)
