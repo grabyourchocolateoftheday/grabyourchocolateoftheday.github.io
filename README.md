@@ -5,9 +5,95 @@ I actually do NOT know how to code but here is me trying :/
 *okay I am having hard time creating this.*
 **SOOOOOO** *let's assume that you've grabbed your kisses chocolate from a bowl (just picture that in your head)*
 
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
 **TADAAAAA**
 
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
 *you are opening your chocolate*
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
+
+**.**
 
 Loading: 73% opened
 
