@@ -25,7 +25,7 @@
 **.**
 
 What message does your chocolate have for you?
-*KEEP SCROLLING TO FIND OUT*
+* *KEEP SCROLLING TO FIND OUT*
 
 **.**
 
@@ -77,7 +77,7 @@ What message does your chocolate have for you?
 
 **.**
 
-*you are opening your chocolate*
+*'you are opening your chocolate'*
 
 **.**
 
